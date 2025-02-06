@@ -1,4 +1,4 @@
-# Hey there! 👋 I'm @p-navya
+# Hey there! 👋 I'm Navya Dhriti
 
 Welcome to my GitHub profile! 🚀
 
